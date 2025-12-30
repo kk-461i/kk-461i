@@ -1,4 +1,9 @@
-`free c+h` ︎︎ ︎︎ ︎︎ ![5b47d61c](https://github.com/user-attachments/assets/f65c7d6e-383e-495b-99e9-1c5554765688) ︎︎ ︎︎ ︎︎ `afk mostly, please w2i :-)`  
+![](https://biscuit.crd.co/assets/images/gallery02/48e64a33.gif?v=532faf5f)  `:: ponytown thing ︎︎ ︎︎ ︎︎ `
+
+I'm often semi-afk, ***w2i*** is recommended.
+
+_Free c+h_ whenever I'm offtab! ! I appreciate you if you do :-]
 
 
-![](https://i.pinimg.com/736x/6a/4e/5f/6a4e5f40654f82b00d93c126c8864ed7.jpg)
+
+![](https://media1.tenor.com/m/8XUMmMXUQToAAAAC/hoopsandyoyo-hoops-and-yoyo.gif)
