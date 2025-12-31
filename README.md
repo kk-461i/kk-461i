@@ -2,7 +2,7 @@
 
 ***busy (⛔)*** probably semi-afk, ***w2i*** is recommended.
 
-***away (🌙)*** offtab,, free c+h! ! I appreciate you if you do :-] I might not respond though, even with whispers!
+***away (🌙)*** offtab,, free c+h! ! I appreciate you if you do :-] I might or might not respond though, even with whispers!
 
 
 
