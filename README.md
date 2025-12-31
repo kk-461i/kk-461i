@@ -1,4 +1,4 @@
-![](https://biscuit.crd.co/assets/images/gallery02/48e64a33.gif?v=532faf5f)  `:: ponytown thing ︎︎ ︎︎ ︎︎ `
+![](https://biscuit.crd.co/assets/images/gallery02/48e64a33.gif?v=532faf5f)  `:: ponytown status ︎︎ ︎︎ ︎︎ `
 
 ***busy (⛔)*** probably semi-afk, ***w2i*** is recommended.
 
